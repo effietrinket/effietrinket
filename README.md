@@ -2,18 +2,16 @@
 <img src="https://github.com/user-attachments/assets/63faadf1-185e-4066-b5d3-3372cf1a4856" align="left" width="400" alt="Alt text">
 <br/><br>
 
-<p align="center">$\color{#E28693}{i  saw  you slow  dancing  ,  alone in your room}$</p>
+<p align="center">$\color{#E28693}{i saw　 you　slow  dancing , alone　in your room}$</p>
      <br/><br>                                           
 <img width="119" height="18" alt="ezgif-6ab12020e9d34fd6" src="https://github.com/user-attachments/assets/13fe45e8-0097-44f7-9214-17acb3e2a1d8" />
 
 
 <p align="center">$\color{#FFB8CA}{effιe 　 ,  　ℓily 　  𓂅𓈒 ˖ e∂  𓈒𓏶 　 ♡}$</p>
-
                            
-<img width="20" height="20" alt="tumblr_211cf4ad9e16b7902991ea97c30ff544_13864db4_75" src="https://github.com/user-attachments/assets/3eda1b69-d5cc-4db6-ac29-3a23185c2525" />
-<p align="center">$\color{#FFB8CA}{she ㅤ  𓈒 ꒪   any   (´ ω ` )}$</p>  ㅤ  ㅤ     
+<img width="20" height="20" alt="tumblr_211cf4ad9e16b7902991ea97c30ff544_13864db4_75" src="https://github.com/user-attachments/assets/3eda1b69-d5cc-4db6-ac29-3a23185c2525" /> $\color{#FFB8CA}{she ㅤ  𓈒 ꒪   any   (´ ω ` )}$ ㅤ     
 
-
+![](https://komarev.com/ghpvc/?username=effietrinket&color=EAD3D6&label=♡♡♡&base=23)
 
 <p align="center">$\color{#FFB9CA}{hungergames fn∂m  int !  multιship}$</p>
 
@@ -21,7 +19,7 @@
                                  
  
 
-<p align="center">$\color{#E28693}{ 𓏼 𓈒 ׄ    i  wanted  to  buy  you a  new  pair of  shoes  ｡     ְ 𓐇   ͜ ᧆ ݄}$</p>
+<p align="center">$\color{#E28693}{ 𓏼 𓈒 ׄ　 i wanted　 to buy  you a   new　  pair  of　  shoes　   ｡     ְ 𓐇   ͜ ᧆ ݄}$</p>
 <br/><br>
 
                                     <img src="https://github.com/user-attachments/assets/e41ca6f7-e60a-4093-9a59-b54eeff62f32" align="left" width="240" alt="Alt text">
