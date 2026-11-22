@@ -9,13 +9,12 @@
 
 <p align="center">$\color{#FFB8CA}{effιe 　 ,  　ℓily 　  𓂅𓈒 ˖ e∂  𓈒𓏶 　 ♡}$</p>
                            
-<img width="20" height="20" alt="tumblr_211cf4ad9e16b7902991ea97c30ff544_13864db4_75" src="https://github.com/user-attachments/assets/3eda1b69-d5cc-4db6-ac29-3a23185c2525" /> $\color{#FFB8CA}{she ㅤ  𓈒 ꒪   any   (´ ω ` )}$ ㅤ     
-
-![](https://komarev.com/ghpvc/?username=effietrinket&color=EAD3D6&label=♡♡♡&base=23)
+ ㅤ ㅤ  ㅤ ㅤ ㅤ  ㅤ<img width="20" height="20" alt="tumblr_211cf4ad9e16b7902991ea97c30ff544_13864db4_75" src="https://github.com/user-attachments/assets/3eda1b69-d5cc-4db6-ac29-3a23185c2525" />　  <p align="center">$\color{#FFB8CA}{she ㅤ  𓈒 ꒪   any   (´ ω ` )}$</p> ㅤ
 
 <p align="center">$\color{#FFB9CA}{hungergames fn∂m  int !  multιship}$</p>
 
-ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ <img width="150" height="20" alt="tumblr_9b26a6915f3f86e9fb6d947e0b0ed1ef_0274f6ba_250" src="https://github.com/user-attachments/assets/5763ba4f-f592-4f1e-a639-bbff5d6dada0" />
+ㅤ  ㅤ ㅤ ![](https://komarev.com/ghpvc/?username=effietrinket&color=EAD3D6&label=♡♡♡&base=23)
+ ㅤ ㅤ  ㅤ ㅤ <img width="150" height="20" alt="tumblr_9b26a6915f3f86e9fb6d947e0b0ed1ef_0274f6ba_250" src="https://github.com/user-attachments/assets/5763ba4f-f592-4f1e-a639-bbff5d6dada0" /> 
                                  
  
 
