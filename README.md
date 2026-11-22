@@ -18,7 +18,7 @@
                                  
  
 
-<p align="center">$\color{#E28693}{ 𓏼 𓈒 ׄ　 i wanted　 to buy  you a   new　  pair  of　  shoes　   ｡     ְ 𓐇   ͜ ᧆ ݄}$</p>
+<p align="center">$\color{#E28693}{ 𓏼 𓈒 ׄ　 i wanted to buy you a new pair of shoes　 ｡     ְ 𓐇   ͜ ᧆ ݄}$</p>
 <br/><br>
 
                                     <img src="https://github.com/user-attachments/assets/e41ca6f7-e60a-4093-9a59-b54eeff62f32" align="left" width="240" alt="Alt text">
