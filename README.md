@@ -21,11 +21,9 @@
 <p align="center">$\color{#E28693}{ 𓏼 𓈒 ׄ　 i wanted to buy you a new pair of shoes　 ｡     ְ 𓐇   ͜ ᧆ ݄}$</p>
 <br/><br>
 
-ㅤ  ㅤ ㅤㅤ  ㅤ ㅤㅤ  ㅤㅤ  ㅤ ㅤㅤ  ㅤ ㅤ ㅤ<img src="https://github.com/user-attachments/assets/e41ca6f7-e60a-4093-9a59-b54eeff62f32" align="center" width="400" alt="Alt text">
+<img src="https://github.com/user-attachments/assets/e41ca6f7-e60a-4093-9a59-b54eeff62f32" align="center" width="460" alt="Alt text"><img src="https://github.com/user-attachments/assets/22f47ac0-1c82-41b4-866d-874c7761c515" align="right" width="360" alt="Alt text">
 
 <img src="https://github.com/user-attachments/assets/cc5767ae-505d-456d-8049-58bd1b56f75a" align="left" width="1000" alt="Alt text">
-
-
 
 
 
