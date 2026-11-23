@@ -11,7 +11,7 @@
                            
  ㅤ ㅤ  ㅤ ㅤ ㅤ  ㅤ<img width="20" height="20" alt="tumblr_211cf4ad9e16b7902991ea97c30ff544_13864db4_75" src="https://github.com/user-attachments/assets/3eda1b69-d5cc-4db6-ac29-3a23185c2525" />　  <p align="center">$\color{#FFB8CA}{she ㅤ  𓈒 ꒪   any   (´ ω ` )}$</p> ㅤ
 
- ㅤ ㅤ  ㅤ ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ ㅤ [ɾҽɳƚɾყ](https://rentry.co/-hayeffie)
+ ㅤ ㅤ  ㅤ ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ ㅤ [ɾҽɳƚɾყ](https://rentry.co/-hayeffie)  　  <p align="center">$\color{#E28693}{♡}$</p>　  　[αƚαႦσσƙ](https://effietrinket.atabook.org/)
 
 <p align="center">$\color{#FFB9CA}{hungergames fn∂m  int !  multιship}$</p>
 
