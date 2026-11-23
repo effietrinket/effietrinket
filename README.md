@@ -15,7 +15,7 @@
 
 <p align="center">$\color{#FFB9CA}{hungergames fn∂m  int !  multιship}$</p>
 
-ㅤ  ㅤ ㅤ ![](https://komarev.com/ghpvc/?username=effietrinket&color=EAD3D6&label=♡♡♡&base=23)
+ㅤ  ㅤ ㅤ ![](https://komarev.com/ghpvc/?username=effietrinket&color=EAD3D6&label=♡♡♡&base=0)
  ㅤ ㅤ  ㅤ ㅤ <img width="150" height="20" alt="tumblr_9b26a6915f3f86e9fb6d947e0b0ed1ef_0274f6ba_250" src="https://github.com/user-attachments/assets/5763ba4f-f592-4f1e-a639-bbff5d6dada0" /> 
                                  
  
