@@ -5,9 +5,9 @@
 <p align="center">$\color{#E28693}{i saw　 you　slow  dancing , alone　in your room}$</p>
      <br/><br>                                           
 
-                                🎄      decorate my [tree](https://decomytree.net/t/WKDSpZ) !!
+<p align="center">$\color{#FFB8CA}{🎄      decorate my }$</p>[tree](https://decomytree.net/t/WKDSpZ) <p align="center">$\color{#FFB8CA}{!!}$</p>
      
-<img width="119" height="18" alt="ezgif-6ab12020e9d34fd6" src="https://github.com/user-attachments/assets/13fe45e8-0097-44f7-9214-17acb3e2a1d8" />
+ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ  ㅤ ㅤ  ㅤ<img width="119" height="18" alt="ezgif-6ab12020e9d34fd6" src="https://github.com/user-attachments/assets/13fe45e8-0097-44f7-9214-17acb3e2a1d8" />
 
 
 <p align="center">$\color{#FFB8CA}{effιe 　 ,  　ℓily 　  𓂅𓈒 ˖ e∂  𓈒𓏶 　 ♡}$</p>
